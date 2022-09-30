@@ -1,3 +1,3 @@
          Hi there 👋
- ⚡ Fun fact: Kpop stan, Wjbu
+ ⚡ Fun fact: Im a Kpop stan & Wibu 
 
